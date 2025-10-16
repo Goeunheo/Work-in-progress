@@ -1,4 +1,4 @@
 # Work-in-progress
 
 
-updating... Sorry. Please check back later!
+updating... Sorry! Please check back later!
